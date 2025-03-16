@@ -1,1 +1,0 @@
-# k-t-phane_er_diyagram_-dev
